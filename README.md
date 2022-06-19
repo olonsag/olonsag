@@ -3,6 +3,6 @@
 - 👯 I’m looking to collaborate on teaching methods and programming
 - 🤔 I’m looking for help with similar projects
 - 💬 Ask me about linguistics 
-- 📫 How to reach me: olonsag12@gmail.com
+- 📫 How to reach me: olonsag12 at gmail dot com
 - 😄 Pronouns: she
 - ⚡ Fun fact: there are no genders in Buryat
