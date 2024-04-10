@@ -6,3 +6,36 @@
 - 📫 How to reach me: olonsag12 at gmail dot com
 - 😄 Pronouns: she
 - ⚡ Fun fact: there are no genders in Buryat
+
+
+
+Толи
+
+Луу🐉
+
+Һармагшан🐒
+
+Бар🐅🐯
+
+Арсалан 🦁
+
+Лир🍐
+
+🍊жүрж
+
+🍏алим  
+
+🍇усан үзэм
+
+Шэгнүүр ⚖️
+
+Үһөө хайшалха✂️
+
+Найтааха🤧
+
+Нюдарга✊🏼
+
+Набшаһан🍂🍃
+
+
+
